@@ -224,4 +224,4 @@ Call of Duty: Advanced Warfare is available as a complete free version, providin
 Get ready to take on the future of warfare with Call of Duty: Advanced Warfare! Download now and join the battle!
 
 ---
-**Last updated:** 2026-10-03 13:03:15 UTC
+**Last updated:** 2026-10-03 17:47:11 UTC
